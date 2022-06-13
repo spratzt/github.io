@@ -6,5 +6,9 @@
 
 “The first apprehensions were dispelled  by the victorious Sultan, who contented himself with a tribute of 12,000 ducats; and while his looks explored the continent of the islands in search of prey, he indulged the Morea in a respite of seven years.“
 
+----
+I have taken to reading Gibbon during my evening bath, as I sink into the warm waters, I also sink into his soothing prose.
+
 No other writer has so fine an eye for the architecture of a sentence.
+
 ￼
